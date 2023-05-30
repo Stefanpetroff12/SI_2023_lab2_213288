@@ -1,1 +1,1 @@
-# SI_2023_lab2_213288
+Stefan Petrov 213288
